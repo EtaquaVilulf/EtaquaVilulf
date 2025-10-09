@@ -10,4 +10,4 @@
 cant believe I have to say this, i DON'T care if you're a cool person with the same interests as I do. idgaf if you ship Ithanort too, don't interact with me if you ship ~~Ithaqua x Nathaniel~~. expect to be **hidden/blocked** permanently. 
 
                                                                                     <img width="250" height="350" alt="image" src="https://github.com/user-attachments/assets/3597ae41-dfc1-448a-b8ca-a5e9409b9d54" />
-                            My Love birds(*´∇｀*)
+                             My Love birds(*´∇｀*)
