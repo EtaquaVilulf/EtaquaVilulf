@@ -11,3 +11,12 @@ cant believe I have to say this, i DON'T care if you're a cool person with the s
 
                                                                                     <img width="250" height="350" alt="image" src="https://github.com/user-attachments/assets/3597ae41-dfc1-448a-b8ca-a5e9409b9d54" />
                              My Love birds(*´∇｀*)
+
+
+
+
+
+                                                                                    <img width="250" height="357" alt="image" src="https://github.com/user-attachments/assets/d9199263-157f-4884-9a71-980a42abf4e8" /> art creds: kisarapuff on tumblr
+
+
+                                                                                    i hate this goober so much someone burn him
