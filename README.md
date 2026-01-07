@@ -2,6 +2,6 @@
 
 photo not mine 
 
-jp/en ok bye
+jp/en
 
 ithaqua int maybe lets kiss maybe
